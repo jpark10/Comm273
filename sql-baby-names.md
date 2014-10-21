@@ -24,7 +24,7 @@ SECOND SET OF QUESTIONS
 
 1. 1,232 other Jessica's.
 
-2.63 Jessica's.
+2. 63 Jessica's.
 
 3. California had the most Jessicas' in 2013.
 
