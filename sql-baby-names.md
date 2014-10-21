@@ -32,5 +32,6 @@ SECOND SET OF QUESTIONS
 
 
 <a href="http://imgur.com/fZKJ3ot"><img src="http://i.imgur.com/fZKJ3ot.png?1" title="source: imgur.com" /></a>
+
 Blue = California
 Red = New Jersey
