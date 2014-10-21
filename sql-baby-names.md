@@ -19,3 +19,18 @@
 10. ME!!!!!!!!!!!!!!!!!
 
 <a href="http://imgur.com/wRDHu5b"><img src="http://i.imgur.com/wRDHu5b.png?1" title="source: imgur.com" /></a>
+
+SECOND SET OF QUESTIONS
+
+1. 1,232 other Jessica's.
+
+2.63 Jessica's.
+
+3. California had the most Jessicas' in 2013.
+
+4. DC and Rhode Island had the least popular Jessicas'.
+
+
+<a href="http://imgur.com/fZKJ3ot"><img src="http://i.imgur.com/fZKJ3ot.png?1" title="source: imgur.com" /></a>
+Blue = California
+Red = New Jersey
